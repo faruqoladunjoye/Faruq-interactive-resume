@@ -1,0 +1,2 @@
+# Faruq interactive resume
+ 
